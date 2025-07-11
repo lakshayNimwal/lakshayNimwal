@@ -1,6 +1,3 @@
-## 👋 Hi there, I'm Lakshay!
-
-
 ![textanim-CPLU1](https://github.com/user-attachments/assets/df1c48b6-78f3-4020-9ad6-fcb0bbf0d052)
 
 # 💫 About Me:
